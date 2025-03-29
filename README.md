@@ -1,2 +1,0 @@
-# kellyvin.com
-kellyvun.com
